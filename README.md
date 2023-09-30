@@ -1,5 +1,5 @@
 
-https://i.hizliresim.com/78tl1je
+https://i.hizliresim.com/78tl1je.png
 
 
 The views in the script content are set to LA.
